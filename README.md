@@ -5,3 +5,4 @@
 apk файл идет в корне папки.
 
 Первое приложение под Android
+[URL=http://www.radikal.ru][IMG]https://b.radikal.ru/b21/2010/40/4f11280abf5b.jpg[/IMG][/URL]
